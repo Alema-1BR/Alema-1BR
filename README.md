@@ -8,7 +8,7 @@
 - ⚡ Fun fact: I love being with people,  but at the same time I love to play 3:00 minutes chess matches ... alone ( i Mean, ONLINE).
 - 
 
---- I'm Kidding, but even online chess, against other players, is better than LOL or DOTA 
+--- I'm Kidding, but even online chess against other players, is better than LOL or DOTA.
 #MAY the games begin!!! 
 ( ORDO AB CHAO ) --- 
 
